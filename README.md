@@ -1,3 +1,1 @@
-## Author : Alex Carl
-## Contact author: alexdcarl@outlook.com || (253) 219 2111
-###
+Hacked account -> removing files that were added without my permission
